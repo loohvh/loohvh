@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @looh
-discord - looh1337
+discord - looh1111
